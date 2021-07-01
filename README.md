@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jorgeak11
-- 👀 I’m interested in obscure video games and gambling
+- 👀 I’m interested in obscure video games, investing and fintech
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me idk
